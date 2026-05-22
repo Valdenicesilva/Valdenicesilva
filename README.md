@@ -22,4 +22,4 @@ I am a Doctor in Psychology and Professional Administrator specializing in Behav
 * **French:** Intermediate
 
 ---
-📫 **How to reach me:** valdenice.portela@example.com
+📫 **How to reach me:** 📫 **How to reach me:** [LinkedIn](https://www.linkedin.com/in/seu-usuario) | seu.email@gmail.co📫 **How to reach me:** [LinkedIn](https://www.linkedin.com/in/valdenice-portela-ba5355b0/?locale=pt) | valdenice.portela3@gmail.com
